@@ -1,4 +1,4 @@
-👀 난 이제 울거예요 땡벌
+👀 여러가지 탐험 / 공부 중
 
 <!---
 daeGULLL/daeGULLL is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
